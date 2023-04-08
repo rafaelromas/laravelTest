@@ -1,0 +1,1 @@
+usuário saiu!
